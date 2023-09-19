@@ -3,7 +3,7 @@
 
 - 🌱 I’m currently learning **a lot**
 
-- 📫 How to reach me **rermy.bleuer@hotmail.com**
+- 📫 How to reach me **remy.bleuer@hotmail.com**
 
 - ⚡ Fun fact **I'm a noob**
 
